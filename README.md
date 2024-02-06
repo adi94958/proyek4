@@ -1,5 +1,5 @@
 Identitas Kelompok :
-Nama   : Adinda Raiza Az-zahra
+Nama   : Adinda Raisa Az-zahra
 NIM    : 221511035
 
 Nama   : Muhammad Adi Saputera
